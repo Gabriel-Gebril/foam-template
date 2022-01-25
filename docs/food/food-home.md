@@ -1,0 +1,2 @@
+# Food
+This page is going to act as a sort table of contents for my "cookbook" but in network form I guess. Food is a very important part of my culture so I look forward to seeing all the interesting ways food connects with the rest of my life as a whole. 
